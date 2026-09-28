@@ -1,3 +1,4 @@
+![THE GREAT REPLAY](./IMG-20260928-WA5472.jpg)
 # THE GREAT REPLAY - @s3.replays
 🎬 Projeto TikTok de replays virais | Meta: 10k seguidores
 
